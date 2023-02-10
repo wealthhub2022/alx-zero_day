@@ -1,1 +1,1 @@
-My Learning is goning well
+Learining new things requiers more than time
